@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Wezz2806
+- 👋 Hi, my name is Muhammad Rizky Nasrulloh
 - 👀 I’m interested in Server Provider
 - 🌱 I’m currently learning Web Developer
 - 📫 reach me on Whatsapp 089698932573
